@@ -84,7 +84,7 @@ Any changes will be reflected by updating the **“Last updated”** date above.
 
 If you have any questions about this privacy policy, please contact us:
 
-📧 **Email:** your-email@example.com
+📧 **Email:** ahmedoogle11@gmail.com
 
 ---
 
